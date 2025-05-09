@@ -6,7 +6,7 @@
    <image align="right" src="https://pbs.twimg.com/media/GlefpLZXoAA-lWn?format=jpg&name=large" alt="" style="width:250px; height:auto"/>
  <br><br><br><br>
 <p>	&nbsp; &nbsp; &nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;
-$${\color{#5028c8}CY}$$ / $${\color{#ffbb47}ADONIS}$$ ,, <i>he him</i> & $${\color{#4d5cff}minor}$$ !</p>
+$${\color{#5028c8}CY}$$ / $${\color{#ffbb47}ADONIS}$$ ,, <i>he him</i> & $${\color{#4d5cff}7teen}$$ !</p>
 <p> &nbsp; &nbsp; &nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	
  SONGWRITER ☆ MULTIFANDOM ARTIST </p>
     &nbsp; &nbsp; &nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;	&nbsp;		&nbsp;	&nbsp;	&nbsp;	&nbsp; 	&nbsp;
